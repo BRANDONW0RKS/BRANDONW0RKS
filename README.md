@@ -13,6 +13,8 @@
 
 🪽 ➜we like to make gifts!! it makes us so joyful.
 
+🪽 ➜DO NOT take isnpo or copy our ponies,we will block you + screnshot you and post you online,how shaming.😋😋
+
 <img width="1280" height="720" alt="1000040003" src="https://github.com/user-attachments/assets/c5ed22ff-3d99-45d9-80e6-1a5275d079ab" />
 
 🪽 ➜we call ourselfes we/our when we are mostly bored or TRYING to eb srs,Yes we cant really be serious it just makes us fell funny!! but we go by he/they.
