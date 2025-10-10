@@ -1,8 +1,7 @@
 <img width="1280" height="720" alt="1000039994" src="https://github.com/user-attachments/assets/886471ad-f422-4205-9ca9-3244890afd71" />
 🪽 ➜ Hii we go by Duskwave or mostly known as Christopherson Kylie.
 
-🪽 ➜Our main fictional kins are ; Brandon,Telamon. maybe Ozolog too
-
+🪽 ➜Our main fictional kins are ; Brandon,Telamon,Pursuer
 🪽 ➜we likey made this github for our pony town. and heres our limits!!
 
 ! . ! . ! . ! . ! . ! . ! . ! . ! . !
@@ -19,11 +18,21 @@
 
 🪽 ➜we call ourselfes we/our when we are mostly bored or TRYING to eb srs,Yes we cant really be serious it just makes us fell funny!! but we go by he/they.
 
-🪽 ➜we are female transgender to male,gay and hypersexual. will do sex jokes every chance we get.
+🪽 ➜we are female transgender to male, straight and hypersexual. will do sex jokes every chance we get.
 
 "Hey duskwave! whats your boundaries?"
 
 <img width="1280" height="720" alt="1000040001" src="https://github.com/user-attachments/assets/8cce4a40-57a6-43c2-924e-719b4eb906a6" />
+
+➜Basic Dni 
+
+➜Doubles
+
+➜pedo,shota,and Lolis
+
+➜people who takes jokes srs, DON'T interact I hate you all so much.
+
+➜starrgirrlzz (targeted names)
 
 I will only add this for a while,will add more soon or just ask me what u wanna know about!! ^_^
 
