@@ -9,6 +9,10 @@
 ![1000000481](https://github.com/user-attachments/assets/3c47ff58-069c-4ea2-8bf4-b3edf5c30309)
  Owen/Ivanov . He/Void/Paw ![1000000480](https://github.com/user-attachments/assets/49711cc0-9632-47a5-827f-c9f39bc9a0c9)
 
+ ✙-ིྀ ‿‿ ⌣˚۠ 4teen  ❀⏖  sv mostly  ᥩ(´◞ ✚𓏼 )︶  
+
+ ꒰ ͜͝𓐇 ͜͝ |  trans   .   bisex  .   poly  ⑅ ͜𓐇˚ִִ𓈒꒱
+
 <img width="933" height="393" alt="1000000488" src="https://github.com/user-attachments/assets/6e64eb7b-a726-40eb-9b36-dba4ddca2907" />
 
 ![1000000477](https://github.com/user-attachments/assets/f34f006f-8569-40e3-bc00-33d188300a1b)
